@@ -1,0 +1,62 @@
+---
+title:  "Terraform"
+layout: "post-no-feature"
+---
+
+​	"Don't you ever come near me or the kids again!" she screamed, starting off down the hillside.
+
+​	"You bitch!" he screamed, lunging after her but getting tangled in a spiderweb. He howled uselessly at the sky, and cursed with eloquence and imagination. The spiderthreads did not break or yield an inch, but when he started to turn back he disentangled himself effortlessly. It was not really a spiderweb, but wispy threads of biological machinery emanating from a false rock a meter away. As he watched, the rock sprouted an antenna. The machine blob quickly shed its rocky appearance, growing an array of cameras that tracked him and Elena, a panel for receiving concentrated solar power from its brothers in orbit, and various roots and filaments whose purpose he could only guess. The central mass was swelling visibly. Surely it had already downloaded his complete biography and was simulating his personality, predicting his next move. At the size of his first, it was already smarter than all of humanity put together. If it became the size of his torso, he knew, it could arrange its innards into a fusion reactor and make interstellar voyages.
+
+​	"What the hell," he pointlessly asked the machine blob, "is the point of telling the AI that happiness is more important than truth or obedience, if this is the bloody fucking result?"
+
+​	As if to apologize for the momentary lapse of subtlety, the machine took on the appearance a sproutling tree. The antennas kinked themselves into branches, and the cameras rippled out into knots.
+
+​	"Tom!" called his son, panting up to the top of the hill. "Ah, there you are. Where's mom? And why are you cursing at a small tree?"
+
+​	"It's a machine, Pat," said Tom. "It's just disguised as a tree."
+
+​	"I really can't understand why you believe in machines and AI and spaceflight and all that magical religiousy nonsense," said Pat. "You said the machines made the houses for us the first winter, but there's marks from your hand saw on the planks of our house."
+
+​	Tom struggled for words for a moment, then gave up. "Mom's down there. Look, I'm going to go find Ben. You'll be fine with Mom for a few days. Tell Mom and little Jenny where I am, OK?"
+
+​	"Yeah, sure. Old Ben? He's more crackers than you."
+
+---
+
+​	"Ah, Tom the Yellow," said Ben. "Would you like some tea?"
+
+​	"Long time no see," said Tom. "But why did you already prepare two cups?"
+
+​	"A rock told me you were coming. Perhaps finding tea already prepared will make you happy."
+
+​	"I just think it might," said Tom, already appreciatively sipping the Earl Grey after his long hike. "A little nibble wouldn't be so bad either." He looked around hopefully, but saw no miracles.
+
+​	"Tom, Tom," tittered Ben. "You must be careful with the intention of your prayers. If the pampered and spoiled factors in your personality simulation are too high, you will get nothing. Ask and you shall receive. Want and you shall not have." Ben snapped his fingers. "Banana." A banana dropped from a pine tree directly into his outstretched hand. He passed it to Tom.
+
+​	Around a mouthful of tea-soaked banana, Tom the story of the fight with Elena. "I want to learn magic, Ben. I mean, not magic. But how to make the AI help me."
+
+​	Ben nodded slowly and sagely, and started to explain.
+
+---
+
+​	It didn't rain that night, and Tom slept in the open, looking up at the stars, just faintly visible with the all the light from the rings and the three moons. At first Ben's words tumbled around in his mind, tying themselves in knots. Slowly the wise-sounding radio chatter faded out. The stars looked down at him. The really bright one straight up was not straight up anymore, had moved westward two pine branches. Tom remembered when the ship had made a planetarium for them, all the youngsters. Elena was setting on the other side of the circle, surrounded by her girlfriends. Ben had been next to him. Ben and Jake. Hell, Ben Jake and Tom. That was a real group of friends.
+
+​	The ship showed them what the night sky would look like when they landed. The moons were factory hives of machine races, the rings where trash, raw materials, smaller factories and other satellites. The smallest moon was a historical treasure: a lineage of terraforming robots descended directly from the first replicating robots on Original Earth. Those robots couldn't change shape. They looked like insects from Original Earth, with a central body and jointed legs. The factory looked like an anthive, with rigid-bodied metallic robots scampering all over the place. Without AI, thousands of human programmers had coded for two centuries to make the terraforming program. Tom was repeatedly amazed at the toughness and determination people must have had in those days.
+
+​	They made up constellations together, all the kids. The genias, the monkey, the river. They had somehow decided to use an Original Earth theme for the names, but Tom realized later that genias were engineered during the Metarepublic. He wondered how the future evolutionary biologists of this planet would explain away the genias, with its reptilian webbed toes, birdish beak and egg laying, and mammalian fur. The Metarepublican genetic engineers had always lacked subtlety. They'd cooked up dragons, too. Dragons! Fire-breathing, flying lizard? Dumbest concept for an animal Tom had ever seen.
+
+​	A cold breeze brought Tom out of his reverie, and he pulled his cloak tighter around him. He saw the west star in the monkey's arm, where people used handcoded programs for understanding AI, so they would always think they knew what was going on. He looked at the eye of the genias, where centuries ago his ancestors had fled a military coup, making the ship to bring them here. He looked at the second star in the bend of the river, where cancerous replicant machines hollowed out planets for the minerals to make more copies of themselves. Tom wondered what was the difference between humans and cancerous robots. He wondered what was the difference between Original Earth and a terraforming project that decided to put a bullet in the past. Sleep come before answers.
+
+---
+
+​	Tom walked around the east slope of the mountain, not yet able to see the village nestled against the sea to the south the of the mountain. Elena, and everything she had done and said, was never far from his mind. He boiled with everything he wanted to say to her. Sometimes Ben's voice intruded, and he would try to phrase things more diplomatically, but underneath it all there was fire. The brush grew thick and thorny around him. He hacked it with his small knife. Insects swarmed around him, landed on him. They weren't mosquitoes, but the big slow bloodsucking motherfuckers that plagued livestock. At least these ones were easy to kill. He smashed one, turning his thigh red, and two more landed. His steps crunched and cracked branches.
+
+​	Tom entered a meadow of low brush. It was time, he decided, for a coordinated counterattack against his buzzing predators. He flopped down on the brush, sheathed his knife, and prepared for a swatting war. Fruit flies swirled but disturbed him not. A grasshopper jumped past. Butterflies fluttered. Unseen crickets chirped. Slowly, Tom lowered his hands. The insect world waltzed around him, occasionally landing on him in harmless incident. He sat still for a moment, watching the insect ball that he was crashing. The queen bee had sent the invitations. All the creatures flew, buzzed and crawled. A big smelly human was sitting in the middle of the dance floor, but this did not disturb the queen bee. Eventually, the human unwrapped his flute and added a high sweet melody to the cricket percussion ensemble.
+
+​	As the last note of the flute faded out into the vast space between mountains, a fruit fly landed between Tom's thumb and forefinger. He closed his hand a millimeter, pinning one wing. Tom looked into the faceted eyes covering almost the fly's whole face.
+
+​	"Are you a droplet of a higher power? Or a fruit fly?" he asked. The eyes were striped with different colors, and completely opaque to Tom.
+
+​	"Did your bloodsucking brothers stop to attack me? Or did I imagine them as attacking because I was angry? Did your brothers stop attacking because I changed my thoughts? Or because I entered the meadow?" The fly was more still and silent than a mountaintop guru.
+
+​	Tom opened his thumb. The fly buzzed away, either completely unconscious that anything had happened, or understanding more profoundly than Tom could in a million lifetimes. Tom sighed, wrapped up his flute in its leather cloth, and walked on.
